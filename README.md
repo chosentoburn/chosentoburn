@@ -10,22 +10,24 @@
 
 </div>
 
+
+
 <div align="center">
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=3F517D&center=true&width=435&lines=Punch+your+lights+out+%2C)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=3F517D&width=435&lines=Beg+for+love%2CI+know+you+feel+it+too!)](https://git.io/typing-svg)
 
 </div>
 
 
 <div align="center">
  
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=3F517D&center=true&width=435&lines=Hit+the+pavement+!)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=3F517D&width=435&lines=Beg+for+death%2Cwhen+I+say+I+love+you!)](https://git.io/typing-svg)
 
 </div>
 
 <div align="center">
  
-$\color{#3F517D}\tiny{\textbf{lyric - Lights Out by Mindless Self Indulgence}}$
+$\color{#3F517D}\tiny{\textbf{lyric - METANOIA by STOMACH BOOK }}$
 
 </div>
 
@@ -65,7 +67,6 @@ $\color{#3F517D}\small{\textbf{ thankyou for reading !! >: ] }}$
 
 <div align="center">
 
-<img width="100" height="100" alt="1000006940" src="https://github.com/user-attachments/assets/89bac210-f14c-48de-8456-da500250b256" />
 
 
 
