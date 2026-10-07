@@ -43,7 +43,7 @@ $\color{#3F517D}\tiny{\textbf{lyric - METANOIA by STOMACH BOOK }}$
 
 <div align="left">
  
-$\color{#3F517D}\small{\textbf{☾  🌀  kryptikal / chosen  , , ,    ᶻz  ⊦ ҂ }}$
+$\color{#3F517D}\small{\textbf{☾  ಄  kryptikal / chosen  , , ,    ᶻz  ⊦ ҂ }}$
 
 $\color{#3F517D}\small{\textbf{✶  ⠄ ˶  INTP   ~~ 𖥵 ~~  ⧝  SP4 }}$
 
