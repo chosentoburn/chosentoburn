@@ -21,7 +21,7 @@
 
 <div align="center">
  
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=3F517D&width=435&lines=Beg+for+love%2CI+know+you+feel+it+too!)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=3F517D&width=435&lines=𝐵𝑒𝑔+𝒻𝑜𝓇+𝓁𝑜𝓋𝑒%2C𝐼+𝓀𝓃𝑜𝓌+𝓎𝑜𝓊+𝒻𝑒𝑒𝓁+𝒾𝓉+𝓉𝑜𝑜!)](https://git.io/typing-svg)
 
 </div>
 
@@ -31,7 +31,7 @@ $\color{#3F517D}\tiny{\textbf{✧─── ･ ｡ﾟ★: .✦ .: ｡ﾟ★ ─�
 
 <div align="center">
  
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=3F517D&width=435&lines=Beg+for+death%2Cwhen+I+say+I+love+you!)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=3F517D&width=435&lines=𝐵𝑒𝑔+𝒻𝑜𝓇+𝒹𝑒𝒶𝓉𝒽%2C𝓌𝒽𝑒𝓃+𝐼+𝓈𝒶𝓎+𝐼+𝓁𝑜𝓋𝑒+𝓎𝑜𝓊!)](https://git.io/typing-svg)
 
 </div>
 
