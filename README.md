@@ -53,6 +53,6 @@ $\color{#3F517D}\small{\textbf{ @MonIdroc — @KandiChann }}$
 
 <div align="center">
 
-$\color{#3F517D}\small{\textbf{ nonbinary aroace . they / he preferred (tmasc ? not tmasc ? fuck if i know) }}$
+$\color{#3F517D}\small{\textbf{ nonbinary aroace . any pronouns r fine (tmasc ? not tmasc ? fuck if i know) }}$
 
 $\color{#3F517D}\small{\textbf{ little stickfigure poet . check doc for poems ! }}$
