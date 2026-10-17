@@ -28,7 +28,7 @@ $\color{#11277FFF}\small{\textbf{ ✶  ⠄ ˶  INTP  ∿ ⧝  SP4 }}$
 
 $\color{#11277FFF}\small{\textbf{∿  oomfs  🜙 🪐}}$
 
-$\color{#11277FFF}\small{\textbf{＊ ⤻  *MonIdroc*  ∿  *KandiChann*  🜙 🪐}}$
+$\color{#11277FFF}\small{\textbf{＊ ⤻  ×  MonIdroc  ×  ∿  ×  KandiChann  ×  🜙 🪐}}$
 
 </div>
 
