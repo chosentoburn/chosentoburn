@@ -12,7 +12,7 @@
 
 <div align="left">
  
-$\color{#11277FFF}\small{\textbf{☾  💫   parody . . . fictkin name    ᶻz  ⊦ ҂}}$
+$\color{#11277FFF}\small{\textbf{☾  ꩜   parody . . . fictkin name    ᶻz  ⊦ ҂}}$
  
 $\color{#11277FFF}\small{\textbf{ ✶  ⠄ ˶  INTP  ∿ ⧝  SP4 }}$
 
@@ -26,9 +26,9 @@ $\color{#11277FFF}\small{\textbf{ ✶  ⠄ ˶  INTP  ∿ ⧝  SP4 }}$
 
 <div align="right">
 
-$\color{#11277FFF}\small{\textbf{∿  oomfs  🜙 🪐}}$
+$\color{#11277FFF}\small{\textbf{∿  oomfs  🜙 ꩜}}$
 
-$\color{#11277FFF}\small{\textbf{＊ ⤻  ×  MonIdroc  ×  ∿  ×  KandiChann  ×  🜙 🪐}}$
+$\color{#11277FFF}\small{\textbf{＊ ⤻  ×  MonIdroc  ×  ∿  ×  KandiChann  ×  🜙 ꩜}}$
 
 </div>
 
