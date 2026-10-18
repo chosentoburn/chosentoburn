@@ -12,9 +12,13 @@
 
 </div>
 
+<div align="center">
+
+$\color{#C5CEEFB3}\tiny{\textbf{Laplace's Angel ( kill people ? kill people !) • Will Wood}}$
+
 <div align="left">
 
-$\color{#C5CEEFB3}\tiny{\textbf{☾ ಄ parody — p.ai.nter , , , ᶻz ⊦ ҂}}$
+$\color{#C5CEEFB3}\small{\textbf{☾ ಄ parody — p.ai.nter , , , ᶻz ⊦ ҂}}$
 
 $\color{#C5CEEFB3}\small{\textbf{✶  ⠄ ˶  INTP   ~~ 𖥵 ~~  ⧝  SP4 }}$
 
