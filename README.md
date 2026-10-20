@@ -52,7 +52,7 @@ $\color{#C5CEEFB3}\small{\textbf{ CREDITS !!!!! }}$
 [verbaatim](https://www.tumblr.com/verbaatim/788485402480803840/guess-who-got-ibis-paint-premium?source=share) 
 
 $\color{#C5CEEFB3}\tiny{\textbf{also PS . before anyone slimes me out , ido NOT support zeal's actions . if you say " but youre supporting him by playing the game !! " SON . i stopped playing pressure RIGHT}}$
-$\color{#C5CEEFB3}\small{\textbf{when the drama happened LEAVEME ALONEE .LETME ENJOY THINGS WITHOUT CONNECTING THEM TO THE CREATOR . thank you}}$
+$\color{#C5CEEFB3}\small{\textbf{when the drama happened LEAVEME ALONEE .LETME ENJOY THINGS WITHOUT CONNECTING THEM TO THE CREATOR . ty . }}$
 
 </details>
 
