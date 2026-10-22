@@ -4,17 +4,17 @@
 
 <img width="1000" height="200" alt="1000007414" src="https://github.com/user-attachments/assets/3bd36a89-88e9-4889-9cd1-1ecbfebab2b0" />
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=C5CEEFB3&width=435&lines=If+you+were+in+my+shoes+%2C)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=C5CEEFB3&width=435&lines=When+you+swing+your+brush%2C)](https://git.io/typing-svg)
 
 <img width="150" height="20" alt="1000006190" src="https://github.com/user-attachments/assets/dedd1851-e1dc-4df9-bd51-038fbc753061" />
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=C5CEEFB3&width=435&lines=You'd+walk+the+same+damn+miles+I+do!)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=C5CEEFB3&width=435&lines=You+have+to+follow+through!)](https://git.io/typing-svg)
 
 </div>
 
 <div align="center">
 
-$\color{#C5CEEFB3}\tiny{\textbf{Laplace's Angel ( kill people ? kill people !) • Will Wood}}$
+$\color{#C5CEEFB3}\tiny{\textbf{Writing on the Wall • Will Stetson}}$
 
 <div align="left">
 
