@@ -51,7 +51,7 @@ $\color{#C5CEEFB3}\small{\textbf{ CREDITS !!!!! }}$
 
 [verbaatim](https://www.tumblr.com/verbaatim/788485402480803840/guess-who-got-ibis-paint-premium?source=share) 
 
-$\color{#C5CEEFB3}\tiny{\textbf{also PS . before anyone slimes me out , i seperate the game from the creator and do NOT take zeal or ren's side . i refuse to take an opinion on it }}$
+$\color{#C5CEEFB3}\tiny{\textbf{also PS . before anyone slimes me out , i seperate the game from the creator and do NOT take zeal or ren's side .}}$
 
 </details>
 
